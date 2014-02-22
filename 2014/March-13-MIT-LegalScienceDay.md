@@ -1,21 +1,20 @@
-
 Brainstorming here!
 
 
 ----
-Main Event Page at MIT:
+Main Event Page at MIT: [https://ecitizen.mit.edu/LegalScienceSalon](https://ecitizen.mit.edu/LegalScienceSalon)
 
-Main EventBrite Page:
+Main EventBrite Page: [will use eCitizen related account to set up event]
 
-Main MIT Blog Page:
+Main MIT Blog Page: [will be at eCitizen.TV somewhere]
 
-Main Clio Event Page:
+Main Clio Event Page: 
 
 ----
 
 Posters and Invite Fodder
 
-[link here]
+[include links here]
 
 ---
 
